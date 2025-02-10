@@ -53,5 +53,5 @@ I'm passionate about building scalable systems and crafting clean, efficient cod
 
 ## 📫 Let's Connect!
 
-- **Email**: zhumabaevasadbek123@gmail.com  
-- **Telegram**: [Asadbek](https://t.me/asadbek09_08/)  
+- **Email**: t1chcoder@gmail.com  
+- **Telegram**: [Asadbek](https://t.me/t1chcoder/)  
